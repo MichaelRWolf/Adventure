@@ -4,8 +4,10 @@ Brevard, NC bills itself as the **Land of Waterfalls** — Transylvania County a
 
 ## Home Base
 
-**Horseplay Lane, Lake Toxaway, NC 28747**
+**81 Horseplay Lane, Lake Toxaway, NC 28747**
 Coordinates: 35.1313°N, 82.8893°W
+
+**Host:** Kristen Hewitt — (413) 313-5667
 
 Private lane off US-64 (Rosman Hwy), in the Quebec community neighborhood.
 Nearest landmarks: T.C. Henderson Elementary School and Quebec Community Center (both on Rosman Hwy, essentially at the lane entrance).
